@@ -18,4 +18,4 @@
   
 \
 \
-Meu Linkedin: [Rivanildo Júnior](www.linkedin.com/in/rivanildojunior)
+Meu Linkedin: [Rivanildo Júnior](https://www.linkedin.com/in/rivanildojunior)
